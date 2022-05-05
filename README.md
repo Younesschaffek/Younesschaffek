@@ -11,3 +11,4 @@ You can click the Preview link to take a look at your changes.
 she conecentrate of her study and she know what she make every moment and i had her the best school choises i remember all
 i feel all the people in the social network and already my sister
 i know the thinking for the people that will me something bad
+i had created a account of circle ci and i hade maked a drone for hamidi and a robot for me
