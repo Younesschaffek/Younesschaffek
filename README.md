@@ -13,3 +13,4 @@ i feel all the people in the social network and already my sister
 i know the thinking for the people that will me something bad
 i had created a account of circle ci and i hade maked a drone for hamidi and a robot for me
 I had create a robot for quatar and i had with mourad to him flaying
+i will to create a lot of robot for elon mask in quatar
