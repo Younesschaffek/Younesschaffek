@@ -21,4 +21,5 @@ i weiss alles uber die welt
 i had win a lot of money in fiver
 ich remember of all and i work im internet und ich erreiche alle ziel verry well
 thomas edisson a expérimenté la lumiére mille fois et je sais l'histoire trés bien 
+ich habe das erreichen
 
