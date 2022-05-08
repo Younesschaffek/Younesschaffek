@@ -30,3 +30,5 @@ i will make mistake for all the people that hate me and will not the good things
  i'am looking for a magnificent future
  i will that zineb amzil make a cryptomoneyfor elon mask
  je veux que tout soit a la porté 
+ i'am looking to the seccus of my sister  in all the school as 
+ i know that god give me all what i will
