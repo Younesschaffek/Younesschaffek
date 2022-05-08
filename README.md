@@ -29,4 +29,4 @@ i will make mistake for all the people that hate me and will not the good things
  i had buyed all the product in lakri3a tomorow
  i'am looking for a magnificent future
  i will that zineb amzil make a cryptomoneyfor elon mask
- 
+ je veux que tout soit a la porté 
