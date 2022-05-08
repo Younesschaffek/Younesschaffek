@@ -27,3 +27,5 @@ i will make a blockchaine for elon mask in the moon
 i will make mistake for all the people that hate me and will not the good things for me
  i had find my key of motocycle and i had buyed him 
  i had buyed all the product in lakri3a tomorow
+ i'am looking for a magnificent future
+ 
