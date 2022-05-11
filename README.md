@@ -32,6 +32,7 @@ i will make mistake for all the people that hate me and will not the good things
  je veux que tout soit a la porté 
  i'am looking to the seccus of my sister  in all the school as 
  i know that god give me all what i will
- when i arrive to another country i will to have the best behavior and i will to speak clearly 
+ when i arrive to another country i will to have the best behavior and i will to speak clearly
+ i remember an all password that i had for all the website
  i read the thinking of all the people i recognaze him in hay el farah 
  i wish for all the friend when i was kind that she fly with netjets especially essadik amzil
