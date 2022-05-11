@@ -33,7 +33,17 @@ i will make mistake for all the people that hate me and will not the good things
  i'am looking to the seccus of my sister  in all the school as 
  i know that god give me all what i will
  when i arrive to another country i will to have the best behavior and i will to speak clearly
+ i know everything about all the people i had recognized him in my way 
  i remeber all my password and i know where is my document now 
  i remember an all password that i had for all the website
  i read the thinking of all the people i recognaze him in hay el farah 
- i wish for all the friend when i was kind that she fly with netjets especially essadik amzil
+ i wish for all the friend when i was kind that she fly with netjets especially zineb amjoud
+ i know the people that make for me a mistake and i will to have part of market i know that 
+ i had increased all the idea 
+ said amzil he had delated all the idea that she had telled for her friends and i knwo every thing about him and her familly and i know that her daughter hade reterned to her school
+ i know the thinking of all the people that speak of me and i know what she should for me and i had already her thinking and i feel every moment in the world
+ i know what all the knowledger think 
+ and i have the thinking of all 
+ i know what the people write of me
+ i wish only the best for me
+ i feel everymoment 
