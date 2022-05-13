@@ -49,3 +49,5 @@ i will make mistake for all the people that hate me and will not the good things
  i know what the people write of me
  i wish only the best for me
  i feel everymoment 
+ich weiss was ist diese gift von die leute alle und ich spreche mit alle freunde uber die zukunft 
+ichse
