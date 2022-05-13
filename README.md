@@ -33,6 +33,8 @@ i will make mistake for all the people that hate me and will not the good things
  i'am looking to the seccus of my sister  in all the school as 
  i know that god give me all what i will
  when i arrive to another country i will to have the best behavior and i will to speak clearly
+ i am interested of saved the quoran and i am looking forward and i will create the concurence betwen my sister and the sister of amzil essadik
+ i know all the people that i had increased all this idea
  i know everything about all the people i had recognized him in my way 
  i remeber all my password and i know where is my document now 
  i remember an all password that i had for all the website
