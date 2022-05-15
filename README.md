@@ -51,3 +51,4 @@ i will make mistake for all the people that hate me and will not the good things
  i feel everymoment 
 ich weiss was ist diese gift von die leute alle und ich spreche mit alle freunde uber die zukunft 
 ichse
+wenn die
