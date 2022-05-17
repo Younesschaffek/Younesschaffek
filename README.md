@@ -52,4 +52,4 @@ i will make mistake for all the people that hate me and will not the good things
 ich weiss was ist diese gift von die leute alle und ich spreche mit alle freunde uber die zukunft 
 ichse
 wenn die leute in alle stadten in morokko die gemuse und die obst essen ich will fur jader ein gift machen
-
+i know what the people had writed for me yesterday and i can change all in a moment
