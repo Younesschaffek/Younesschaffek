@@ -33,6 +33,7 @@ i will make mistake for all the people that hate me and will not the good things
  i'am looking to the seccus of my sister  in all the school as 
  i know that god give me all what i will
  when i arrive to another country i will to have the best behavior and i will to speak clearly
+ 
  i am interested of saved the quoran and i am looking forward and i will create the concurence betwen my sister and the sister of amzil essadik
  i know all the people that i had increased all this idea
  i know everything about all the people i had recognized him in my way 
@@ -55,3 +56,4 @@ wenn die leute in alle stadten in morokko die gemuse und die obst essen ich will
 i know what the people had writed for me yesterday and i can change all in a moment
 i had finded a secret how to make money im internet
 i had finded the money im internet
+i had finded the way of money im internet
