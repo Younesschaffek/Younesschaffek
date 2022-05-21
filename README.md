@@ -54,3 +54,4 @@ ichse
 wenn die leute in alle stadten in morokko die gemuse und die obst essen ich will fur jader ein gift machen
 i know what the people had writed for me yesterday and i can change all in a moment
 i had finded a secret how to make money im internet
+i had finded the money im internet
